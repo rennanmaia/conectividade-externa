@@ -1,0 +1,1 @@
+# conectividade-externa
